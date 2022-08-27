@@ -1,1 +1,1 @@
-This is another readme file
+Coding is kinda cool, I think i am getting it
